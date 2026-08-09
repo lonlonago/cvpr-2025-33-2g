@@ -14,6 +14,8 @@ Transformer 视觉适配、图神经网络（GNN）、轻量化网络设计、�
 ![img_04.jpg](img_04.jpg)
 ![img_05.jpg](img_05.jpg)
 
+item_1033002132274
+
 Here is a pay link on Stripe ( https://buy.stripe.com/3cs8yP7sY87d0vu9AB ). Please contact me lonlonago@foxmail.com after funding $89, and I will send you a complete data files , thank you!
 
 ![111.png](111.png)
